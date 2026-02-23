@@ -7,7 +7,7 @@ Educate | Protect | Advocate
 
 
 
-Political advocacy: 3 non negotiable bedrock policies demanded by WE THE PEOPLE
+Political advocacy: 3 non negotiable BEDROCK POLICIES demanded by WE THE PEOPLE
 
 1. End the fraud of currency inflation, adopt a sound money standard in Canada
 
