@@ -2,7 +2,14 @@
 
 Public repository for the Canadian National Guard 
 
-Politics have failed the people of Canada. The problem cannot be fixed from the system that benefits from it. WE THE PEOPLE must reclaim our power
+Politics have failed the people of Canada. The problem cannot be fixed from the system that benefits from it. WE THE PEOPLE must reclaim our power.
+
+The government only has power because WE allow it. Our rights do not come from the government, we are born with them. Government exists to protect those rights, not to control us.
+
+If the government stops protecting our rights and instead abuses them, WE THE PEOPLE have the right and duty to change it.
+
+
+3 pillar mandate:
 
 Educate | Protect | Advocate
 
