@@ -6,7 +6,9 @@ Politics have failed the people of Canada. The problem cannot be fixed from the 
 
 The government only has power because WE allow it. Our rights do not come from the government, we are born with them. Government exists to protect those rights, not to control us.
 
-If the government stops protecting our rights and instead abuses them, WE THE PEOPLE have the right and duty to change it.
+If the government stops protecting our rights and instead abuses them, WE THE PEOPLE have the right and duty to change it. 
+
+The government derives it's power and authority from the compliance of the people. Do not comply with tyranny. Make no peace with evil. 
 
 
 3 pillar mandate:
