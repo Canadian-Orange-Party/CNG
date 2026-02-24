@@ -2,6 +2,8 @@
 
 Public repository for the Canadian National Guard 
 
+Politics have failed the people of Canada. The problem cannot be fixed from the system that benefits from it. WE THE PEOPLE must reclaim our power
+
 Educate | Protect | Advocate
 
 
