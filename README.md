@@ -19,7 +19,3 @@ Policy advocacy: 3 non negotiable changes demanded by WE THE PEOPLE
 2. End income tax, property tax, capital gains tax and carbon taxes
 
 3. Form a Justice TaskForce (JTF) to track every tax dollar spent since 2010, investigate politicians who broke trust and form a court system free from political influence to punish politicians who commit fraud or treason.
-
-
-
-Unite the tribes: Action4Canada, Second Sons, Indigenous tribes, Patriot movements, Business leaders, Veterans, Military, Law enforcement
